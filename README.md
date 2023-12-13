@@ -4,3 +4,6 @@
 
 〇地域活性化を目的としたアプリケーション開発
 > https://minatogo-pro221014.glideapp.io/dl/c76697/s/94211c/r/GEWJIi.-SX6SRQ6hlVLOqg
+
+〇AI記事の執筆
+> https://ainow.ai/author/s-hata/
