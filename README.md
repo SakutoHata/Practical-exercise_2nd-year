@@ -7,4 +7,5 @@
 > https://minatogo-pro221014.glideapp.io/dl/c76697/s/94211c/r/GEWJIi.-SX6SRQ6hlVLOqg
 
 〇AI記事の執筆
-> https://ainow.ai/author/s-hata/
+> ~https://ainow.ai/author/s-hata/~
+> 記事が削除されていたため、現在は閲覧できません。
